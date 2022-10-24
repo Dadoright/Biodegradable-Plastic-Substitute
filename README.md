@@ -23,7 +23,7 @@ Denuka Jayaweera, a third-year engineering undergraduate are working on this tea
 
 ## Project Page
 
-[Biodegradable Plastic Substitute](https://www.facebook.com)
+
 
 
 
